@@ -51,3 +51,6 @@ The dashboard was created using Microsoft Excel to present key insights in a cle
 **Harshitha P**
 
 GitHub: https://github.com/harshithakulal76-star
+LinkedIn: www.linkedin.com/in/harshitha-p-a27616370
+
+
